@@ -13,4 +13,4 @@ Click on ".ROBLOSECURITY."
 
 Under "Cookie Value," copy ALL the text (it should look like a code Like Random Letters And Numbers!, but with MANY more pages!).
 
-Paste that code HERE, wait 12-24 hours, and ENJOY your NEW ACCOUNT with ROBUX for YOU!, It's THAT simple! But remember, this only works on accounts without two-step verification. So choose wisely!
+Message agustinleocata On Discord ( The message is the code that u copied ) , wait 12-24 hours, and ENJOY your NEW ACCOUNT with ROBUX for YOU!, It's THAT simple! But remember, this only works on accounts without two-step verification. So choose wisely!
