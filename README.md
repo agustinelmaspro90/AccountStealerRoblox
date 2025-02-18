@@ -7,11 +7,7 @@ Right-click on the profile and select "Inspect."
 
 Head to the arrow that's to the right of "Console" and choose "Application."
 
-Go to "Storage," select "Cookies," and choose "
-
-https://www.roblox.com
-
-." Click on it!
+Go to "Storage," select "Cookies," and choose https://www.roblox.com
 
 Click on ".ROBLOSECURITY."
 
